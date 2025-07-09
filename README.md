@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Chandra BHushan Kumar
+💫 Hi, I'm Chandra BHushan Kumar
 
 Email Me 👉 ✉️ **chandrabhushankumar27080@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
